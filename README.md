@@ -9,4 +9,3 @@
 - 👨‍🎓 I’m in the doctoral program in Civil Engineering (Water Resources Engineering)
 - 📫 How to reach me: kbae2@ncsu.edu
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ...
